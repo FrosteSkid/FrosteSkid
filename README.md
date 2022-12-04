@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FrosteSkid
-- 👀 I’m not a skid
+- 👀 I’m a pro skid 😎😎
 - 🌱 I’m currently learning nothing because i am just that good obviously 🤓🤓🤓
-- 💞️ I’m looking to collaborate on nothing
+- 💞️ I’m looking to collaborate with stw devs
 - 📫 How to reach me dm me on discord Froste#0001
