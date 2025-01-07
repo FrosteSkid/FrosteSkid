@@ -1,1 +1,1 @@
-froste.lol
+https://froste.lol
